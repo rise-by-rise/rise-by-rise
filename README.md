@@ -1,3 +1,2 @@
-## RISE!!!
+## ty for visiting my profile!!!
 
- [feel free to cuddle with me on save server!]

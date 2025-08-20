@@ -1,5 +1,3 @@
-## ty for visiting my profile! ☻
+## ty for visiting my profile! ☻.𖥔 
 
-.𖥔 ݁ 
-
-[https://tenor.com/rSGDuMGA8Im.gif]
+## 

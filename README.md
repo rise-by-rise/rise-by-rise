@@ -5,3 +5,4 @@
 ![зображення_viber_2025-08-30_17-32-08-803](https://github.com/user-attachments/assets/be99a5b8-99c7-4725-b708-2309c3b99ed0)
  <img width="440" height="508" alt="Знімок екрана 2025-08-30 151722" src="https://github.com/user-attachments/assets/cd554f1d-eb73-410c-99a9-aeda3f9f11e7" /> --- me and bro
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=0e75b6&style=flat" alt="rise-by-rise" /> 

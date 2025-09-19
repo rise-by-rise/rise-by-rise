@@ -13,6 +13,9 @@
 
 ![bug-insect](https://github.com/user-attachments/assets/cb81a4bf-862d-4a81-88c1-5169ad944b98)
 
-![divider](https://github.com/user-attachments/assets/295f6798-68b0-474b-a53e-f3f0a47a91f2) ![divider](https://github.com/user-attachments/assets/295f6798-68b0-474b-a53e-f3f0a47a91f2) ![divider](https://github.com/user-attachments/assets/295f6798-68b0-474b-a53e-f3f0a47a91f2)
 
-![зображення_viber_2025-09-13_12-17-44-758](https://github.com/user-attachments/assets/bc501a4b-b96c-4c43-b0a6-d6aa6beee099)
+
+![зображення_viber_2025-09-13_12-17-44-758](https://github.com/user-attachments/assets/bc501a4b-b96c-4c43-b0a6-d6aa6beee099) ---- my art btw 
+
+![fnaf-five-nights-at-freddys](https://github.com/user-attachments/assets/28b6ae86-567b-4d8f-b52c-57b728528921) 
+uhh thanks for your attention!!!..

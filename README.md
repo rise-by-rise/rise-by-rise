@@ -9,4 +9,7 @@
 
 
  
-![fnaf-cheers](https://github.com/user-attachments/assets/3eb4ae4d-23d4-422d-bf26-44a5f9a21ace)
+![fnaf-cheers](https://github.com/user-attachments/assets/3eb4ae4d-23d4-422d-bf26-44a5f9a21ace) 
+
+![bug-insect](https://github.com/user-attachments/assets/cb81a4bf-862d-4a81-88c1-5169ad944b98)
+

@@ -7,7 +7,9 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=green&style=flat" alt="rise-by-rise" /> /////
 
 
+#574D61
 
+(87,77,97)
  
 ![fnaf-cheers](https://github.com/user-attachments/assets/3eb4ae4d-23d4-422d-bf26-44a5f9a21ace) 
 

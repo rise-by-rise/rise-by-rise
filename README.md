@@ -4,11 +4,8 @@
 ![cat-divider](https://github.com/user-attachments/assets/d4b97dc4-0aa9-4e2c-bd8b-41d6d82120ef)
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=green&style=flat" alt="rise-by-rise" /> /////
-
-
+ <p align="left"> <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=green&style=flat" alt="rise-by-rise" /> /////
  
-![fnaf-cheers](https://github.com/user-attachments/assets/3eb4ae4d-23d4-422d-bf26-44a5f9a21ace) <img width="223" height="255" alt="Знімок екрана 2025-09-21 190818" src="https://github.com/user-attachments/assets/56fd5580-3d0b-4d24-8758-f9f8731379f5" />
 
 ![bug-insect](https://github.com/user-attachments/assets/cb81a4bf-862d-4a81-88c1-5169ad944b98)
 

@@ -2,17 +2,20 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![68747470733a2f2f66696c65732e636174626f782e6d6f652f35726a6e71612e676966](https://github.com/user-attachments/assets/122206a9-a2a5-4905-9f45-ab6abac38714)
-<img width="99" height="56" alt="397754303-9b061db0-7bde-4be6-9c67-0c47ba233c5e" src="https://github.com/user-attachments/assets/452ee364-48ae-4706-b401-ce529fffba7d" />
-![fnaf-five-nights-at-freddy's](https://github.com/user-attachments/assets/bb278c57-0f54-4323-90e9-bf931771e735)  <img width="99" height="56" alt="fbe651b7" src="https://github.com/user-attachments/assets/2bc90a93-f31d-4adc-9074-2665943ccad1" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤ <img width="99" height="56" alt="397754303-9b061db0-7bde-4be6-9c67-0c47ba233c5e" src="https://github.com/user-attachments/assets/452ee364-48ae-4706-b401-ce529fffba7d" />
+![fnaf-five-nights-at-freddy's](https://github.com/user-attachments/assets/bb278c57-0f54-4323-90e9-bf931771e735)  <img width="99" height="56" alt="fbe651b7" src="https://github.com/user-attachments/assets/2bc90a93-f31d-4adc-9074-2665943ccad1" />  ![typos](https://github.com/user-attachments/assets/0f8bdaab-e1f2-4db3-b369-0caeae4c9147)
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![bats-bat](https://github.com/user-attachments/assets/50d35bdb-3885-45e0-b9d7-c86007d4e88e)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![blinkies-hannigram](https://github.com/user-attachments/assets/2a800c74-3044-45b3-bb1c-82910f36a626) ![f7bbb2b6](https://github.com/user-attachments/assets/566aeca6-9e31-4db8-917a-26cde3dbaa56)
 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![77b9cd72](https://github.com/user-attachments/assets/40db52db-c8cf-4426-a3f1-8f53410c8d90)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![the-80s-rocked](https://github.com/user-attachments/assets/ead59181-0635-4e89-af27-664f10f7f147)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![blinkie-blinkies](https://github.com/user-attachments/assets/88cd7d28-6bd1-48c0-b420-207695a11119)

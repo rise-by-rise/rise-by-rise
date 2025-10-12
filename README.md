@@ -9,10 +9,13 @@
 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟢  ![77b9cd72](https://github.com/user-attachments/assets/40db52db-c8cf-4426-a3f1-8f53410c8d90)
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="265" height="293" alt="зображення_viber_2025-10-12_19-08-51-950" src="https://github.com/user-attachments/assets/c37a17c8-91da-4f9a-8bf0-4b0b5a5ca142" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![77b9cd72](https://github.com/user-attachments/assets/40db52db-c8cf-4426-a3f1-8f53410c8d90)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="192" height="87" alt="1760285886" src="https://github.com/user-attachments/assets/85766a79-8ec6-4b53-99dd-18588027c5a1" />
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![the-80s-rocked](https://github.com/user-attachments/assets/ead59181-0635-4e89-af27-664f10f7f147)

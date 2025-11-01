@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759660301 (1)" src="https://github.com/user-attachments/assets/ab1ac7b6-f22c-4e2f-b638-4c3aba1c5692" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759660301 (1)" src="https://github.com/user-attachments/assets/ab1ac7b6-f22c-4e2f-b638-4c3aba1c5692" />
 
 
 
@@ -21,21 +21,22 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![the-80s-rocked](https://github.com/user-attachments/assets/ead59181-0635-4e89-af27-664f10f7f147)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="370" height="320" alt="зображення_viber_2025-11-01_14-23-27-714" src="https://github.com/user-attachments/assets/2fbc738c-d69b-4330-9dd9-d1babc5261fc" />
+ㅤ![fredbear-fnaf](https://github.com/user-attachments/assets/40ededac-7d12-4278-bbc1-99c14896bf6c)ㅤ<img width="370" height="320" alt="зображення_viber_2025-11-01_14-23-27-714" src="https://github.com/user-attachments/assets/2fbc738c-d69b-4330-9dd9-d1babc5261fc" />  ![spring-bonnie-fnaf-world](https://github.com/user-attachments/assets/3f7df406-d90e-473c-b1bc-34d2540c7cd0)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![blinkies (3)](https://github.com/user-attachments/assets/36e8a6b8-dca9-4cfa-8ee0-32e9d5393c85) ![blinkies-blinkie (2)](https://github.com/user-attachments/assets/7448e087-4603-4754-bb38-f493b5fd19b0) ![weezer-green](https://github.com/user-attachments/assets/3ef21457-04fc-4690-b3f4-a991f14843f9) ![blinkies (4)](https://github.com/user-attachments/assets/28a464a3-9184-4755-8675-7c36db3cc0ee)
 
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![3761df29](https://github.com/user-attachments/assets/c0dc0f38-8fb6-404b-90f0-348d2514866a) ![8ec7e16e](https://github.com/user-attachments/assets/da75b3bb-b1d4-4572-a617-c999257b8c7b) ![9ff03ebd](https://github.com/user-attachments/assets/932643db-33a2-481b-a2a3-069c14fd983d) ![blinkiesCafe-Go](https://github.com/user-attachments/assets/5ac78112-a66a-4bdc-8457-e7400d3d20fd)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![f7bbb2b6](https://github.com/user-attachments/assets/b1505c6d-5a1c-4eea-bb0c-71ff0e859ab4) ![blinkiesCafe-Go](https://github.com/user-attachments/assets/3ec555de-4d57-4a89-9faf-3d4f111d5bf1) ![f7bbb2b6](https://github.com/user-attachments/assets/a78a3ce2-2901-4359-b6f7-3bd397d6691a)
 
 
 
 
+ ㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759659360" src="https://github.com/user-attachments/assets/11adcc81-e55b-4bb0-9788-aea7334056fc" />
+
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759659360" src="https://github.com/user-attachments/assets/11adcc81-e55b-4bb0-9788-aea7334056fc" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![55ddca9c8284f937367b16d181f30c7e](https://github.com/user-attachments/assets/38df2dc9-e045-4e68-b33e-22de8b1da13a) 

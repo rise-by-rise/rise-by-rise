@@ -21,7 +21,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![the-80s-rocked](https://github.com/user-attachments/assets/ead59181-0635-4e89-af27-664f10f7f147)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![blinkie-blinkies](https://github.com/user-attachments/assets/88cd7d28-6bd1-48c0-b420-207695a11119)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="370" height="320" alt="зображення_viber_2025-11-01_14-23-27-714" src="https://github.com/user-attachments/assets/2fbc738c-d69b-4330-9dd9-d1babc5261fc" />
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![blinkies (3)](https://github.com/user-attachments/assets/36e8a6b8-dca9-4cfa-8ee0-32e9d5393c85) ![blinkies-blinkie (2)](https://github.com/user-attachments/assets/7448e087-4603-4754-bb38-f493b5fd19b0) ![weezer-green](https://github.com/user-attachments/assets/3ef21457-04fc-4690-b3f4-a991f14843f9) ![blinkies (4)](https://github.com/user-attachments/assets/28a464a3-9184-4755-8675-7c36db3cc0ee)
 

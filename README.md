@@ -19,21 +19,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![the-80s-rocked](https://github.com/user-attachments/assets/ead59181-0635-4e89-af27-664f10f7f147)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![f7bbb2b6](https://github.com/user-attachments/assets/b1505c6d-5a1c-4eea-bb0c-71ff0e859ab4) ![blinkiesCafe-Go](https://github.com/user-attachments/assets/3ec555de-4d57-4a89-9faf-3d4f111d5bf1) ![f7bbb2b6](https://github.com/user-attachments/assets/a78a3ce2-2901-4359-b6f7-3bd397d6691a)
-
- ![fredbear-fnaf](https://github.com/user-attachments/assets/40ededac-7d12-4278-bbc1-99c14896bf6c)ㅤ<img width="298" height="296" alt="зображення_viber_2025-11-01_15-10-58-715" src="https://github.com/user-attachments/assets/b8e89d1e-6d3d-4b56-ba17-3d01b778cb0f" />
-  ![spring-bonnie-fnaf-world](https://github.com/user-attachments/assets/3f7df406-d90e-473c-b1bc-34d2540c7cd0)
 
 
 
-
-
-
-
- ㅤㅤㅤㅤㅤㅤㅤㅤ
-
-
-
+ ㅤㅤㅤㅤㅤㅤ
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759659360" src="https://github.com/user-attachments/assets/11adcc81-e55b-4bb0-9788-aea7334056fc" />
@@ -42,7 +31,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![55ddca9c8284f937367b16d181f30c7e](https://github.com/user-attachments/assets/38df2dc9-e045-4e68-b33e-22de8b1da13a) 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="423" height="192" alt="1759681143" src="https://github.com/user-attachments/assets/016ee109-5de8-4ab8-ac8c-66e2e6e68616" />
-
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=green&style=flat" alt="rise-by-rise" />  

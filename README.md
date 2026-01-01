@@ -1,39 +1,35 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759660301 (1)" src="https://github.com/user-attachments/assets/ab1ac7b6-f22c-4e2f-b638-4c3aba1c5692" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤ <img width="99" height="56" alt="397754303-9b061db0-7bde-4be6-9c67-0c47ba233c5e" src="https://github.com/user-attachments/assets/452ee364-48ae-4706-b401-ce529fffba7d" />
-![fnaf-five-nights-at-freddy's](https://github.com/user-attachments/assets/bb278c57-0f54-4323-90e9-bf931771e735)  <img width="99" height="56" alt="fbe651b7" src="https://github.com/user-attachments/assets/2bc90a93-f31d-4adc-9074-2665943ccad1" />  ![typos](https://github.com/user-attachments/assets/0f8bdaab-e1f2-4db3-b369-0caeae4c9147)
+  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![840ac2e70ca6abdcee9ac42c4e366eee](https://github.com/user-attachments/assets/f1174d48-d2cd-4d8c-be89-64bea4059189)
+<p align="center">
+──── ୨୧ ────
 
 
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟢  ![77b9cd72](https://github.com/user-attachments/assets/40db52db-c8cf-4426-a3f1-8f53410c8d90)
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="265" height="293" alt="зображення_viber_2025-10-12_19-08-51-950" src="https://github.com/user-attachments/assets/c37a17c8-91da-4f9a-8bf0-4b0b5a5ca142" />
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="192" height="87" alt="1760285886" src="https://github.com/user-attachments/assets/85766a79-8ec6-4b53-99dd-18588027c5a1" />
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![pizza-freak](https://github.com/user-attachments/assets/4ae3f32b-233b-4595-9fc2-8c30eb1bbd37) ![blinkies (1)](https://github.com/user-attachments/assets/ee5248a9-7578-45b9-9bb9-2beff4e476aa) ![the-80s-rocked](https://github.com/user-attachments/assets/ead59181-0635-4e89-af27-664f10f7f147)
-
-
-
-
- ㅤㅤㅤㅤㅤㅤ
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="269" height="122" alt="1759659360" src="https://github.com/user-attachments/assets/11adcc81-e55b-4bb0-9788-aea7334056fc" />
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![55ddca9c8284f937367b16d181f30c7e](https://github.com/user-attachments/assets/38df2dc9-e045-4e68-b33e-22de8b1da13a) 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="423" height="192" alt="1759681143" src="https://github.com/user-attachments/assets/016ee109-5de8-4ab8-ac8c-66e2e6e68616" />
-
-
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=green&style=flat" alt="rise-by-rise" />  
-
-![d56b6f56](https://github.com/user-attachments/assets/8f9d63db-d044-4ad7-b86c-5b07d2826010)
-
+<p align="center">
+ <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=4fb3a2&style=flat" alt="rise-by-rise" />
+<p align="center">
+⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>
+&nbsp;
+   <a href="https://www.roblox.com/users/7608181313/profile" target="_blank"><b>rbx acc</b></a>
+&nbsp;
+    <a href="https://rise-by-rise2ndvers.straw.page" target="_blank"><b>strawpage</b></a>⌟ 
+  <p align="center">
+       “𝘐 𝘸𝘢𝘭𝘬 𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘦𝘢𝘤𝘩 𝘥𝘢𝘺 𝘱𝘰𝘭𝘪𝘴𝘩𝘪𝘯𝘨 𝘨𝘰𝘭𝘥𝘦𝘯 𝘵𝘦𝘢𝘳𝘴,
+    <p align="center">
+      𝘩𝘰𝘱𝘪𝘯𝘨 𝘵𝘩𝘦𝘺’𝘭𝘭 𝘨𝘭𝘰𝘸 𝘣𝘳𝘪𝘨𝘩𝘵 𝘦𝘯𝘰𝘶𝘨𝘩 𝘵𝘰 𝘳𝘦𝘢𝘤𝘩 𝘵𝘩𝘦 𝘰𝘯𝘦 𝘐 𝘴𝘵𝘪𝘭𝘭 𝘮𝘪𝘴𝘴."
+       <p align="center">
+         𖹭 𝘤𝘶𝘥𝘥𝘴 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥 𖹭
+  <p align="center">
+    𝘶𝘯𝘭𝘦𝘴𝘴 𝘪𝘮 𝘢𝘭𝘳𝘦𝘢𝘥𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘸 𝘴𝘰𝘮𝘦𝘰𝘯𝘦
+  <p align="center">
+     𝘴𝘦𝘮𝘪 - 𝘢𝘧𝘬
+    <p align="center">
+      𝘭𝘢𝘵𝘦 𝘳𝘦𝘴𝘱𝘰𝘯𝘴𝘦 , 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘺𝘰𝘶 𝘸𝘩𝘪𝘴𝘱𝘦𝘳 
+      <p align="center">
+       ( 𝘮𝘺 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘦𝘴 )
+        <p align="center">
+          ❄︎ 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘷𝘦𝘳 ❄︎
+  
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![e6a69350 (1)](https://github.com/user-attachments/assets/2463c363-1897-4931-ae6c-bc7c5744e2bc)

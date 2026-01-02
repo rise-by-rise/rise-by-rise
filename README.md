@@ -7,7 +7,7 @@
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=Profile%20views&color=bd3955&style=flat" alt="rise-by-rise" />
+ <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=╋━+hahahahahh&color=bd3955&style=flat" alt="rise-by-rise" />
 <p align="center">
 ⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>
 &nbsp;

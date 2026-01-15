@@ -1,15 +1,16 @@
 
 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![840ac2e70ca6abdcee9ac42c4e366eee](https://github.com/user-attachments/assets/f1174d48-d2cd-4d8c-be89-64bea4059189)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![3e8862449a3bbdfcd87d5d071d2b2d3d](https://github.com/user-attachments/assets/78e2d4c2-bb52-48ad-88fb-7b2dc024d9fd)
+
 <p align="center">
 ──── ୨୧ ────
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=⋮+praise+me,+love+me,+see+me+⋮&color=bd3955&style=flat" alt="rise-by-rise" />
+ <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=⋮+praise+me,+love+me,+see+me+⋮&color=5c9c5f&style=flat" alt="rise-by-rise" />
 <p align="center">
-⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>
+⌞ <a href="https://open.spotify.com/track/7sY5E3YFUyNSibSoIE9Z2P?si=e5eed60652484892" target="_blank"><b>.,</b></a>
 &nbsp;
    <a href="https://www.roblox.com/users/7608181313/profile" target="_blank"><b>rbx acc</b></a>
 &nbsp;

@@ -1,14 +1,15 @@
 
 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![3e8862449a3bbdfcd87d5d071d2b2d3d](https://github.com/user-attachments/assets/78e2d4c2-bb52-48ad-88fb-7b2dc024d9fd)
-
-<p align="center">
-──── ❄︎ ────
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a0e1caed0c5ad3f1fe8b93bbca1d05b5](https://github.com/user-attachments/assets/3f83dc01-d3c4-43d0-8972-7d37c3d3cec0)
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ´•ﻌ•`ʔ&color=5c9c5f&style=flat" alt="rise-by-rise" />
+🏻‎🏼‎🏽‎🏾🏿 ─ ─ ─ ─ ─
+
+
+<p align="center">
+ <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ´•ﻌ•`ʔ&color=383838&style=flat" alt="rise-by-rise" />
 <p align="center">
 ⌞ <a href="https://open.spotify.com/track/7sY5E3YFUyNSibSoIE9Z2P?si=e5eed60652484892" target="_blank"><b>.,</b></a>
 &nbsp;
@@ -29,4 +30,5 @@
           𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘷𝘦𝘳
   
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![e6a69350 (1)](https://github.com/user-attachments/assets/2463c363-1897-4931-ae6c-bc7c5744e2bc)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![7656c4c0-original](https://github.com/user-attachments/assets/8d7dd2e5-400b-4702-82b2-197105f6f7ed)
+

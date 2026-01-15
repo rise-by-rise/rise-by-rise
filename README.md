@@ -1,7 +1,7 @@
 
 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a0e1caed0c5ad3f1fe8b93bbca1d05b5](https://github.com/user-attachments/assets/3f83dc01-d3c4-43d0-8972-7d37c3d3cec0)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a0e1caed0c5ad3f1fe8b93bbca1d05b5](https://github.com/user-attachments/assets/3f83dc01-d3c4-43d0-8972-7d37c3d3cec0)
 
 
 <p align="center">
@@ -30,5 +30,5 @@
           𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘷𝘦𝘳
   
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![7656c4c0-original](https://github.com/user-attachments/assets/8d7dd2e5-400b-4702-82b2-197105f6f7ed)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![7656c4c0-original](https://github.com/user-attachments/assets/8d7dd2e5-400b-4702-82b2-197105f6f7ed)
 

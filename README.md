@@ -11,7 +11,7 @@
 <p align="center">
  <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ´•ﻌ•`ʔ&color=383838&style=flat" alt="rise-by-rise" />
 <p align="center">
-⌞ <a href="https://open.spotify.com/track/7sY5E3YFUyNSibSoIE9Z2P?si=e5eed60652484892" target="_blank"><b>.,</b></a>
+⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>
 &nbsp;
    <a href="https://www.roblox.com/users/7608181313/profile" target="_blank"><b>rbx acc</b></a>
 &nbsp;

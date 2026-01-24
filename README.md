@@ -15,7 +15,7 @@
 &nbsp;
    <a href="https://www.roblox.com/users/7608181313/profile" target="_blank"><b>rbx acc</b></a>
 &nbsp;
-    <a href="https://rise-by-rise2ndvers.straw.page" target="_blank"><b>strawpage</b></a>⌟ 
+    <a href="https://riseyyyyy.carrd.co/" target="_blank"><b>more abt me</b></a>⌟ 
   <p align="center">
      𝘤𝘶𝘥𝘥𝘴 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥
   <p align="center">

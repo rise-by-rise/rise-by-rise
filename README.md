@@ -10,6 +10,11 @@
 
 <p align="center">
  <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ´•ﻌ•`ʔ&color=383838&style=flat" alt="rise-by-rise" />
+  <p align="center">
+    
+    
+    
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ![blinkiesCafe-AE](https://github.com/user-attachments/assets/55b8f0d4-fc62-4259-a76c-c4bb268c254c)
 <p align="center">
 ⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>
 &nbsp;

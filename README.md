@@ -6,10 +6,6 @@
 
 <p align="center">
 🏻‎🏼‎🏽‎🏾🏿 ─ ─ ─ ─ ─
-
-
-<p align="center">
- <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ´•ﻌ•`ʔ&color=383838&style=flat" alt="rise-by-rise" />
   <p align="center">
     
     

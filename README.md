@@ -7,7 +7,7 @@
 <p align="center">
 🏻‎🏼‎🏽‎🏾🏿 ─ ─ ─ ─ ─
   <p align="center">
-    
+    <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=65a680&style=bold" alt="mr-r1se" /> </p>
     
     
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ![blinkiesCafe-AE](https://github.com/user-attachments/assets/55b8f0d4-fc62-4259-a76c-c4bb268c254c)

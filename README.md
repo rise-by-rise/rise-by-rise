@@ -10,7 +10,7 @@
     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=b89f7f&style=bold" alt="mr-r1se" /> </p>
     
     
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤ  ㅤ![tumblr_inline_p7yycmutbB1rhwzwl_75sq](https://github.com/user-attachments/assets/e4c500e7-8e2b-4e3c-89a2-41c4ec50e510)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ  ![tumblr_inline_p7yycmutbB1rhwzwl_75sq](https://github.com/user-attachments/assets/e4c500e7-8e2b-4e3c-89a2-41c4ec50e510)
 
 
 

@@ -7,7 +7,7 @@
 <p align="center">
 🏻‎🏼‎🏽‎🏾🏿 ─ ─ ─ ─ ─
   <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=b89f7f&style=bold" alt="mr-r1se" /> </p>
+    <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=7fabb8&style=italic" alt="mr-r1se" /> </p>
   
 <p align="center">
 ⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>

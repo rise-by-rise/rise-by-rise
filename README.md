@@ -10,11 +10,11 @@
     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=7fabb8&style=italic" alt="mr-r1se" /> </p>
   
 <p align="center">
-⌞ <a href="https://x.com/rise_by_rise/" target="_blank"><b>twitter</b></a>
+  <a href="https://fivenightsatfreddys.fandom.com/wiki/Henry_Emily" target="_blank"><b>strawpage (wip).</b></a>
 &nbsp;
    <a href="https://www.roblox.com/users/7608181313/profile" target="_blank"><b>rbx acc</b></a>
 &nbsp;
-    <a href="https://riseyyyyy.carrd.co/" target="_blank"><b>more abt me</b></a>⌟ 
+    <a href="https://cookierunkingdom.fandom.com/wiki/Truthless_Recluse" target="_blank"><b>more abt me (wip).</b></a>⌟ 
   <p align="center">
      𝘤𝘶𝘥𝘥𝘴 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥
   <p align="center">

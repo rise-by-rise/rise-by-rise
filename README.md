@@ -1,7 +1,8 @@
 
 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зображення_viber_2026-02-14_09-31-41-373](https://github.com/user-attachments/assets/e3bf2b0b-3f61-4c56-9414-ed313a9d0298)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зображення_viber_2026-02-14_09-48-21-521](https://github.com/user-attachments/assets/cbf3169d-ef7a-459b-9a9f-af58bdcc1844)
+
 
 
 
@@ -10,7 +11,7 @@ HAPPY BDAY STEF
 <p align="center">
 ♡♡♡♡♡ ─ ─ ─ ─ ─
   <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=000000&style=italic" alt="mr-r1se" /> </p>
+    <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=c92445&style=italic" alt="mr-r1se" /> </p>
   
 <p align="center">
   <a href="https://fivenightsatfreddys.fandom.com/wiki/Henry_Emily" target="_blank"><b>strawpage (wip).</b></a>

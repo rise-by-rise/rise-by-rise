@@ -7,7 +7,6 @@
 
 
 <p align="center">
-HAPPY BDAY STEF 
 <p align="center">
 ♡♡♡♡♡ ─ ─ ─ ─ ─
   <p align="center">
@@ -34,3 +33,4 @@ HAPPY BDAY STEF
 
  
 
+[![ㅤㅤㅤㅤ rise 𖦏 profile views](https://u8views.com/api/v1/github/profiles/226117336/views/day-week-month-total-count.svg)](https://u8views.com/github/rise-by-rise)

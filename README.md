@@ -13,13 +13,11 @@
     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=ʕ•ᴥ•ʔ&color=000000&style=italic" alt="mr-r1se" /> </p>
   
 <p align="center">
-  <a href="https://fivenightsatfreddys.fandom.com/wiki/Henry_Emily" target="_blank"><b>strawpage (wip).</b></a>
+  <a href="https://riseyrise.straw.page" target="_blank"><b>strawpage.</b></a>
 &nbsp;
    <a href="https://www.roblox.com/users/7608181313/profile" target="_blank"><b>rbx acc</b></a>
-&nbsp;
-    <a href="https://cookierunkingdom.fandom.com/wiki/Truthless_Recluse" target="_blank"><b>more abt me (wip).</b></a>⌟ 
   <p align="center">
-     𝘤𝘶𝘥𝘥𝘴 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥
+     𝘤𝘶𝘥𝘥𝘴 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦d
   <p align="center">
     𝘶𝘯𝘭𝘦𝘴𝘴 𝘪𝘮 𝘢𝘭𝘳𝘦𝘢𝘥𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘸 𝘴𝘰𝘮𝘦𝘰𝘯𝘦
   <p align="center">

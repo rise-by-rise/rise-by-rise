@@ -1,7 +1,8 @@
 
 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![shadownilla-shadowvanilla](https://github.com/user-attachments/assets/bf723c7c-38de-4af6-9190-7085dc73b6c5)
+
 
 
 
@@ -31,4 +32,4 @@
 
  
 
-[![ㅤㅤㅤㅤ rise 𖦏 profile views](https://u8views.com/api/v1/github/profiles/226117336/views/day-week-month-total-count.svg)](https://u8views.com/github/rise-by-rise)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![ㅤㅤㅤㅤ rise 𖦏 profile views](https://u8views.com/api/v1/github/profiles/226117336/views/day-week-month-total-count.svg)](https://u8views.com/github/rise-by-rise)

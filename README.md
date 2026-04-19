@@ -3,7 +3,7 @@
 
                           
 <p align="center">
-  ─ ─ ─ ─ ─
+  ☰☰☰☰☰☰☰☰☰☰☰
   <p align="center">
     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=†&color=000000&style=italic" alt="mr-r1se" /> </p>
   
@@ -21,3 +21,5 @@
       l𝘢𝘵𝘦 𝘳𝘦𝘴𝘱𝘰𝘯𝘴𝘦 , 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘺𝘰𝘶 𝘸𝘩𝘪𝘴𝘱𝘦𝘳
         <p align="center">
           𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘷𝘦𝘳
+          <p align="center">
+          ☰☰☰☰☰☰☰☰☰☰☰☰

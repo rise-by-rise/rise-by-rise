@@ -19,6 +19,11 @@
   <a href="https://rentry.co/steffik" target="_blank"><b>russ vers</b></a> 
   </p>
 
+
+<p align="center">  
+  <a href="https://riseyrise.straw.page/" target="_blank"><b>strawpage</b></a>
+
+  
 <p align="center">
   <img src="https://github.com/user-attachments/assets/4aaff7cf-7644-4bae-b56d-9e4b7657426e" />
 <p align="center">

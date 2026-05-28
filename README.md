@@ -3,7 +3,7 @@
     </p>
 
   <p align="center">
-    <img width="450" height="450" alt="зображення_viber_2026-05-12_14-38-45-935" src="https://github.com/user-attachments/assets/9962195e-6ed8-4ed8-ae75-69ad790ac8ee" />    </p>
+<img width="680" height="440" alt="зображення_viber_2026-05-28_13-40-35-893" src="https://github.com/user-attachments/assets/6305fb51-8030-4272-ab23-8a1b1615970d" />
 
 
   <p align="center">

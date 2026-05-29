@@ -5,6 +5,8 @@
   <p align="center">
 <img width="680" height="440" alt="зображення_viber_2026-05-28_13-40-35-893" src="https://github.com/user-attachments/assets/6305fb51-8030-4272-ab23-8a1b1615970d" />
 
+<p align="center">
+$\color{#f20004}{\textsf{i'll render it properly soon trust!!!!!}}$
 
   <p align="center">
      <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=🫆&color=2e2bd6&style=italic" alt="mr-r1se" /> </p> 

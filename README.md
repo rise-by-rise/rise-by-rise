@@ -20,12 +20,9 @@ $\color{#f20004}{\textsf{...“ I'm not}}$
           </p>
 
   
-<p align="center">
-  <a href="https://guns.lol/mr.rise" target="_blank"><b>info</b></a> :
-  
 <p align="center">  
-  <a href="https://rentry.co/riseyrise" target="_blank"><b>extended eng </b></a> :
-  <a href="https://rentry.co/steffik" target="_blank"><b>russ vers</b></a> 
+  <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a> :
+  <a href="https://guns.lol/mr.rise" target="_blank"><b>guns.lol</b></a> 
   </p>
 
 

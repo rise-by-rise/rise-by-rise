@@ -16,9 +16,7 @@ $\color{#f20004}{\textsf{...“ I'm not}}$
   $\color{#f22230}{\textsf{I hope we both could find the right answer to our fate's mystery.”}}$
 
   <p align="center">
-     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=🫆&color=2e2bd6&style=italic" alt="mr-r1se" /> </p> 
-          </p>
-
+<a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=999999&color=0c2dd6&labelColor=ea2705&logo=blue%20residue"/></a>
   
 <p align="center">  
   <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a> :

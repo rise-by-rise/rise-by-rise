@@ -19,14 +19,12 @@ $\color{#f20004}{\textsf{...“ I'm not}}$
 <a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=999999&color=0c2dd6&labelColor=ea2705&logo=blue%20residue"/></a>
   
 <p align="center">  
-  <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a> :
-  <a href="https://guns.lol/mr.rise" target="_blank"><b>guns.lol</b></a> 
-  </p>
+  <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a>
 
 
 <p align="center">  
-  <a href="https://riseyrise.straw.page/" target="_blank"><b>strawpage</b></a>
-
+$\color{#f20004}{\textsf{sign these -->}}$  <a href="https://riseyrise.straw.page/" target="_blank"><b>strawpage</b></a> :
+<a href="https://risey.atabook.org/" target="_blank"><b>atabook</b></a>
   
 <p align="center">
   <img src="https://github.com/user-attachments/assets/4aaff7cf-7644-4bae-b56d-9e4b7657426e" />
@@ -36,5 +34,5 @@ $\color{#f20004}{\textsf{...“ I'm not}}$
     $\color{#f20004}{\textsf{══════════════}}$
 
   
-  $\color{#2e2bd6}{\textsf{oh and yeah the pfp art is made by me ..cool right??}}$
+  $\color{#2e2bd6}{\textsf{oh and yeah all this art stuff is made by me ..cool right?? (no)}}$
 

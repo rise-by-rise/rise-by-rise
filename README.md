@@ -3,7 +3,8 @@
 
 HOW COULD THEY THROW ME OUT LIKE THAT...IN 4 HOURS.
 i hate my life.
-thanks for wishing me luck, that one person who whispered me yesterday at pjsk zone... :( 
+
+thanks for wishing me luck, that one person who whispered me yesterday at pjsk zone... AAAGHH:( 
 
 14 hours of playtime for a dusty musty 2k title 
 

@@ -1,5 +1,16 @@
-  <p align="center">
-    $\color{#f20004}{\textsf{▄︻デ══━一💥}}$
+<p align="center">
+    <img width="200" height="230" alt="1000009606" src="https://github.com/user-attachments/assets/06225cad-0107-4925-a3b3-a0edd2be09f7" /> <img width="200" height="230" alt="1000009605" src="https://github.com/user-attachments/assets/cf3745f9-cba9-467e-9c61-071b5e3daf38" /> 
+
+HOW COULD THEY THROW ME OUT LIKE THAT...IN 4 HOURS.
+i hate my life. 13.06.26
+thanks for wishing me luck, that one person who whispered me yesterday at pjsk zone... :( 
+
+14 hours of playtime for a dusty musty 2k title
+
+
+
+<p align="center">
+  $\color{#f20004}{\textsf{▄︻デ══━一💥}}$
     </p>
 
   <p align="center">

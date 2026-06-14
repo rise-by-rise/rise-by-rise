@@ -34,8 +34,6 @@ $\color{#f20004}{\textsf{sign these -->}}$  <a href="https://riseyrise.straw.pag
 <p align="center">
     $\color{#f20004}{\textsf{══════════════}}$
 
-  
-  $\color{#2e2bd6}{\textsf{oh and yeah all this art stuff is made by me ..cool right?? (no)}}$
 
 <p align="center">
   $\color{#2e2bd6}{\textsf{beware! graphics/blinkies/stamps dump!}}$
@@ -58,7 +56,8 @@ $\color{#f20004}{\textsf{sign these -->}}$  <a href="https://riseyrise.straw.pag
   <p align="center">
   <img src="https://github.com/user-attachments/assets/da38fabe-1b17-4e7d-b1aa-778d356b3b2b" />
 
-
+  <p align="center">
+    $\color{#f20004}{\textsf{══════════════}}$
 
 
 

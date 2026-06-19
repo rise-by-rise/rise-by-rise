@@ -6,7 +6,7 @@
   <p align="center">
 <img width="500" height="500" alt="зображення_viber_2026-06-19_12-11-18-216" src="https://github.com/user-attachments/assets/b82ac184-275b-4237-a751-cdb60212748a" />
 <p align="center">
-$\color{#f20004}{\textsf{...“You want a piece of all this fabulousness?" He gestured to himself.}}$
+$\color{#f20004}{\textsf{...“You want a piece of all this fabulousness?" Stefan gestured to himself.}}$
 
   <p align="center">
   $\color{#f20004}{\textsf{"Well, my best friend comes along with it. I wouldn't cut you out of my life,}}$

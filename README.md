@@ -14,9 +14,12 @@ $\color{#f20004}{\textsf{...“You want a piece of all this fabulousness?" He ge
   $\color{#f20004}{\textsf{, any more than I would cut off my right hand and give it to someone as a Valentine's Day gift."}}$
    
   <p align="center">
-  $\color{#2b40ab}{\textsf{"Gross," said Roger. "Must you?"}}$
-  
+  $\color{#2b40ab}{\textsf{"Gross," said Roger.}}$
 
+
+  <p align="center">
+  $\color{#2b40ab}{\textsf{"Must you?"}}$
+  
 <p align="center">
       $\color{#f20004}{\textsf{He grinned. "I must.”}}$
 

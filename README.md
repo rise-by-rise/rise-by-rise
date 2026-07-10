@@ -4,7 +4,7 @@
     </p>
 
   <p align="center">
-<img width="500" height="500" alt="зображення_viber_2026-06-19_12-11-18-216" src="https://github.com/user-attachments/assets/b82ac184-275b-4237-a751-cdb60212748a" />
+<img width="600" height="450" alt="зображення_viber_2026-07-10_15-16-51-149" src="https://github.com/user-attachments/assets/17a03dc7-f48b-402b-99a7-a3e8106f72f7" />
 <p align="center">
 $\color{#f20004}{\textsf{...“You want a piece of all this fabulousness?" Stefan gestured to himself.}}$
 

@@ -6,27 +6,17 @@
   <p align="center">
 <img width="600" height="450" alt="зображення_viber_2026-07-10_15-16-51-149" src="https://github.com/user-attachments/assets/17a03dc7-f48b-402b-99a7-a3e8106f72f7" />
 <p align="center">
-$\color{#f20004}{\textsf{...“You want a piece of all this fabulousness?" Stefan gestured to himself.}}$
-
-  <p align="center">
-  $\color{#f20004}{\textsf{"Well, my best friend comes along with it. I wouldn't cut you out of my life,}}$
-  $\color{#2b40ab}{\textsf{Roger}}$
-  $\color{#f20004}{\textsf{, any more than I would cut off my right hand and give it to someone as a Valentine's Day gift."}}$
-   
-  <p align="center">
-  $\color{#2b40ab}{\textsf{"Gross," said Roger.}}$
+$\color{#001fe6}{\textsf{“I think if I've learned anything about friendship,}}$
+  $\color{#9000bc}{\textsf{it's to hang in, stay connected, fight for them, and let them fight for you.}}$
+  $\color{#b80091}{\textsf{Don't walk away, don't be distracted, don't be too busy or tired, don't take them for granted.}}$
+  $\color{#d30073}{\textsf{Friends are part of the glue that holds life and faith together.}}$
+  $\color{#eb0052}{\textsf{Powerful stuff..}}$
+<p align="right">
+$\color{#f20004}{\textsf{― Jon Katz}}$
 
 
   <p align="center">
-  $\color{#2b40ab}{\textsf{"Must you?"}}$
-  
-<p align="center">
-      $\color{#f20004}{\textsf{He grinned. "I must.”}}$
-
-
-
-  <p align="center">
-  <a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=1000000&color=cf0003&labelColor=0600c6&logo=pretzel"/></a>
+  <a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=1000000&color=cf0003&labelColor=0600c6&logo=pretzel/></a>
   
 <p align="center">  
   <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a>

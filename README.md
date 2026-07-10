@@ -26,7 +26,7 @@ $\color{#f20004}{\textsf{...“You want a piece of all this fabulousness?" Stefa
 
 
   <p align="center">
-<a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=1000000000&color=b70507&labelColor=0000b2"/></a>
+  <a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=1000000&color=cf0003&labelColor=0600c6&logo=pretzel"/></a>
   
 <p align="center">  
   <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a>

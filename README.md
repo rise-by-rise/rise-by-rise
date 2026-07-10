@@ -16,8 +16,7 @@ $\color{#f20004}{\textsf{― Jon Katz}}$
 
 
   <p align="center">
-  <a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Hits" src="https://hits.sh/github.com/rise-by-rise.svg?style=plastic&label=shots&extraCount=1000000&color=cf0003&labelColor=0600c6&logo=pretzel/></a>
-  
+    <a href="https://hits.sh/github.com/rise-by-rise/"><img alt="Перегляди" src="https://hits.sh/github.com/rise-by-rise.svg?label=ar%20visitors&extraCount=1000000&color=2411c0&labelColor=b70422&logo=barmenia"/></a>
 <p align="center">  
   <a href="https://rentry.co/brokerise" target="_blank"><b>rentry </b></a>
 

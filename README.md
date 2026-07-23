@@ -4,8 +4,10 @@
     </p>
 
   <p align="center">
-<img width="600" height="450" alt="зображення_viber_2026-07-10_15-16-51-082" src="https://github.com/user-attachments/assets/b79938ca-39e5-49cf-b0c1-e1228df73002" /><p align="center">
-$\color{#001fe6}{\textsf{“I think if I've learned anything about friendship,}}$
+<img width="450" height="570" alt="зображення_viber_2026-07-23_13-15-25-417" src="https://github.com/user-attachments/assets/9b97a0dd-ff58-4577-a84e-74b163aeca22" />
+
+<p align="center">
+  $\color{#001fe6}{\textsf{“I think if I've learned anything about friendship,}}$
   $\color{#9000bc}{\textsf{it's to hang in, stay connected, fight for them, and let them fight for you.}}$
   $\color{#b80091}{\textsf{Don't walk away, don't be distracted, don't be too busy or tired, don't take them for granted.}}$
   $\color{#d30073}{\textsf{Friends are part of the glue that holds life and faith together.}}$
